@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Filiberto
 
-**Engineer | Automation Specialist | Full-Stack Developer**
+**Mechatronics Engineering Student**
 
 ---
 
