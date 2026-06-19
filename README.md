@@ -1,6 +1,6 @@
 # Hi, :)
 
-**B.S in Mechatronics Engineering **
+**B.S in Mechatronics Engineering**
 
 
 
