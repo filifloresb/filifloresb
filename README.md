@@ -1,6 +1,6 @@
-# Hi, I'm Filiberto
+# Hi, :)
 
-**Mechatronics Engineering Student**
+**B.S in Mechatronics Engineering **
 
 
 
